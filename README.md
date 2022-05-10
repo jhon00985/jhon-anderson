@@ -1,2 +1,0 @@
-# jhon-anderson
-trabajo 
